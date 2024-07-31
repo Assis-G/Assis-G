@@ -11,3 +11,5 @@ Meu nome é Gustavo Assis
 00001088035000sp@al.educacao.sp.gov.br
 
 @Assis-G
+
+![](https://tenor.com/pt-BR/view/luffy-gear-5-gif-11749160529476345274)
