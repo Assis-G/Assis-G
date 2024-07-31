@@ -12,4 +12,6 @@ Meu nome é Gustavo Assis
 
 @Assis-G
 
-![](https://tenor.com/pt-BR/view/one-piece-gear-5-luffy-gear-5-luffy-cartoon-gif-2561826101789064430)
+![](https://media1.tenor.com/m/I41vRDV1_O4AAAAC/one-piece-gear-5.gif)
+![](https://media1.tenor.com/m/OvqEKxnx_9QAAAAC/shanks-one-piece.gif)
+![](https://media1.tenor.com/m/sqDcXaGTgjEAAAAC/one-piece-one-piece-meme.gif)
