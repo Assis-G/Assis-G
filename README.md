@@ -12,4 +12,4 @@ Meu nome é Gustavo Assis
 
 @Assis-G
 
-![](<div class="tenor-gif-embed" data-postid="11749160529476345274" data-share-method="host" data-aspect-ratio="1.09692" data-width="100%"><a href="https://tenor.com/view/luffy-gear-5-gif-11749160529476345274">Luffy Gear 5 GIF</a>from <a href="https://tenor.com/search/luffy+gear+5-gifs">Luffy Gear 5 GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
+![](https://tenor.com/pt-BR/view/one-piece-gear-5-luffy-gear-5-luffy-cartoon-gif-2561826101789064430)
